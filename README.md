@@ -1,6 +1,6 @@
 
 Conexão as minhas redes sociais.
-https://twitter.com/euzebio_me
+https://twitter.com/CruzfEusebio
 https://www.linkedin.com/in/feccruz/
 https://euzebiodacruzf.blogspot.com.br/
 https://www.facebook.com/franciscoeuzebiodacruzme
